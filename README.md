@@ -4,8 +4,6 @@
 FeralZorroz || I use this to link my socials, and to learn coding!
 <br> </br>
 
-[My strawpage!](https://elzorroz2.straw.page/)
-<br>
 [My pronouns.cc!](https://pronouns.cc/@..The_Wilds..)
 
 
